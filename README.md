@@ -14,6 +14,6 @@ Overview of Skills
 
 Contact
 
-Feel free to reach out for any questions or collaboration opportunities.  
+Feel free to reach out for any questions or employment opportunities.  
   LinkedIn - www.linkedin.com/in/sulaiman-samad-3880a228b  
   Email - Sulaimansamad14@gmail.com
